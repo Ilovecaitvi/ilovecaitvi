@@ -1,4 +1,4 @@
-## if you're reading this you're dum eco 
+## "Is Hannibal in love with me?"..
  *+:。
  
 "..`you belong to **me** "
@@ -8,3 +8,4 @@
 -------------------------------------------------------------------------
 
 <img src="https://i.pinimg.com/736x/bf/eb/cb/bfebcbc9d8def4bc39935f3229bc1980.jpg" alt="This may contain: two young men standing next to each other in front of a spotlight light, one looking at the other"/>
+"Could he daily feel a stab of hunger for you, and find nourishment at the very sight of you? Yes. But do you ache for him?"
