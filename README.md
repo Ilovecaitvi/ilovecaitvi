@@ -7,4 +7,4 @@
 
 -------------------------------------------------------------------------
 
-<img src="https://i.pinimg.com/736x/bf/eb/cb/bfebcbc9d8def4bc39935f3229bc1980.jpg" alt="This may contain: two young men standing next to each other in front of a spotlight light, one looking at the other"/><img width="749" height="485" alt="image" src="https://github.com/user-attachments/assets/76148f7c-4bc0-4833-a99e-fc73379eb5be" />
+<img src="https://i.pinimg.com/736x/bf/eb/cb/bfebcbc9d8def4bc39935f3229bc1980.jpg" alt="This may contain: two young men standing next to each other in front of a spotlight light, one looking at the other"/>
