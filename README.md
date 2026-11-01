@@ -1,4 +1,4 @@
-## mysterious words
+## mysterious words 👀
 
-(<img src="https://i.pinimg.com/736x/30/5c/eb/305ceb450d29a297555a7b823a72f1e1.jpg" alt="This may contain: a close up of an evil looking person with big blue eyes and purple hoodie">
-)
+<img src="https://i.pinimg.com/736x/30/5c/eb/305ceb450d29a297555a7b823a72f1e1.jpg" alt="This may contain: a close up of an evil looking person with big blue eyes and purple hoodie">
+
