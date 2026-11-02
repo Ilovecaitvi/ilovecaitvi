@@ -2,7 +2,7 @@
  *+:。
 <img src="https://i.pinimg.com/originals/a0/09/83/a009839e53bb20f7f2e80c097029478e.gif" alt="This may contain: a man and woman standing next to each other in front of a wall with shadows on it"/>
 
-(<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcS6KBXFU9KWtotcUSyqIurb9-VMGSLq5iTVWL3-bKluNpc9Bo9Xi-uV-HBi&amp;s=10" alt="Cat Paws | TikTok"/><img width="399" height="501" alt="image" src="https://github.com/user-attachments/assets/c1506cdc-51ed-4fbe-98eb-7d8e38c17700" />
+<img width="399" height="501" alt="image" src="https://github.com/user-attachments/assets/c1506cdc-51ed-4fbe-98eb-7d8e38c17700" />
 
 
 
